@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @VarvaraChernichkina
 - 👀 I’m interested in hiring IT-specialists
-- 🌱 I’m currently work at FIRECODE
+- 🌱 I’m currently work at AURIGA
 - 💞️ I’m looking to collaborate on interesting people
 - 📫 How to reach me @varvaramsh at Telegram
 
